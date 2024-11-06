@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm Aleksey Samarin
+# 👋 Hi there! I'm @samarioze
 
 ### 👨‍💻 About Me
 - 🇷🇺 From Russia
